@@ -37,7 +37,7 @@
 
 ### 📫 Connect with Me
 - 💼 [LinkedIn](https://www.linkedin.com/in/priyanshu-purohit)  
-- ✉️ Email: **priyanshu.purohit99@gmail.com**  
+- ✉️ Email: **priyanshu.purohit6@gmail.com**  
 
 ---
 
